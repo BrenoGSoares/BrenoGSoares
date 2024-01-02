@@ -1,4 +1,4 @@
-# 🙋🏽 Hi!
+# 	:raising_hand_man: Hi!
 
 Sou o Breno Soares
 
